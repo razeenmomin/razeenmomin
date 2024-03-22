@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning python
 - 📫 How to reach me razeenmomin98@gmail.com 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am a fast learner
+- ⚡ Fun fact: BMW M3
 - Future billionare 
 
 <!---

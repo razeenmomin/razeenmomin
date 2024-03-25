@@ -4,7 +4,7 @@
 - 📫 How to reach me razeenmomin98@gmail.com 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: BMW M3
-- Future billionare 
+
 
 <!---
 razeenmomin/razeenmomin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
